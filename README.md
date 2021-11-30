@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @apbarba
-- 👀 I’m interested in animals and read
-- 🌱 I’m currently learning reading
+- 👀 I’m interested in animals, drawing and writing
+- 🌱 I’m currently... Im sure dont important.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
